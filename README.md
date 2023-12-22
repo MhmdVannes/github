@@ -1,1 +1,2 @@
 guudsuagdiugaudu ubah dikit
+afgan
